@@ -1,4 +1,4 @@
-Skip to content
+skip
  
 Search or jump to…
 
